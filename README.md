@@ -1,0 +1,1 @@
+# A-Location-Specific-Landslide-Risk-Scoring-Index-LS-LRSI-
